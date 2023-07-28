@@ -1,4 +1,4 @@
-name: Commit cheat
+name: OwO
 
 on:
   workflow_dispatch:
@@ -24,9 +24,9 @@ jobs:
       - name: Commit changes
         run: |
 
-          git config --local user.email "140785446+robyftp@users.noreply.github.com"
+          git config --local user.email "robb@gk.ftp.sh"
           git config --local user.name "robyftp"
-          git config --global --add safe.directory /github/workspace
+          git config --local --add safe.directory /github/workspace
           git add -A
           git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
           
