@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why are skeletons so calm? Because nothing gets under their skin.
