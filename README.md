@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
