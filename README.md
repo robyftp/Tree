@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What do you call a fish wearing a bowtie? Sofishticated.
