@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
