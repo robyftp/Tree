@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
