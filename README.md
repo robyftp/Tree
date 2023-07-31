@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
