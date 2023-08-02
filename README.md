@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Why does Superman get invited to dinners? Because he is a Supperhero.
