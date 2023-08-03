@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Two peanuts were walking down the street. One was a salted.
