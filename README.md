@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What did the sea say to the sand? "We have to stop meeting like this."
