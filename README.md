@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## People are making apocalypse jokes like there’s no tomorrow.
