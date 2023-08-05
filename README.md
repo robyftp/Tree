@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Why do fish live in salt water? Because pepper makes them sneeze!
