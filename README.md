@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What did one wall say to the other wall? I'll meet you at the corner!
