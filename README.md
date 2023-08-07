@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why did the sentence fail the driving test? It never came to a full stop.
