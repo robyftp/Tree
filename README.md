@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
