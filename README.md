@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
