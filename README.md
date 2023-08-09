@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Where does batman go to the bathroom? The batroom.
