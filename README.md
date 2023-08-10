@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What did the grape do when he got stepped on? He let out a little wine.
