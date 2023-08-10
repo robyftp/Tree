@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
