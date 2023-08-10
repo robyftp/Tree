@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## What is a vampire's favorite fruit? A blood orange.
