@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## What don't watermelons get married? Because they cantaloupe.
