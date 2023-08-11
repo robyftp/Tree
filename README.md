@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I wanted to be a tailor but I didn't suit the job
