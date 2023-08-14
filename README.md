@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What creature is smarter than a talking parrot? A spelling bee.
