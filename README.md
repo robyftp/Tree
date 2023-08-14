@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
