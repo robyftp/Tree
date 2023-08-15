@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
