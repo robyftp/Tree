@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## I burned 2000 calories today, I left my food in the oven for too long.
