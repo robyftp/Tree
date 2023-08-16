@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
