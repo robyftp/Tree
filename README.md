@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Where do rabbits go after they get married? On a bunny-moon.
