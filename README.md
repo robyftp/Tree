@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## What do you call a sheep with no legs? A cloud.
