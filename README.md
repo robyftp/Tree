@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## What did the piece of bread say to the knife? Butter me up.
