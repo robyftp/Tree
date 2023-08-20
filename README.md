@@ -1,1 +1,2 @@
-## How do locomotives know where they're going? Lots of training
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
