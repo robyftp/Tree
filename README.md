@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
