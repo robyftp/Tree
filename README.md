@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
