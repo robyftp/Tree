@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the coffee file a police report? It got mugged.
