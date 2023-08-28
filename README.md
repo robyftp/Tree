@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
