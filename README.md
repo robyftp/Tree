@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why can't a bicycle stand on its own? It's two-tired.
