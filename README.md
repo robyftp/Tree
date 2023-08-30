@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## I thought about going on an all-almond diet. But that's just nuts.
