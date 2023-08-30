@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## What creature is smarter than a talking parrot? A spelling bee.
