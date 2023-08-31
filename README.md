@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## People who don't eat gluten are really going against the grain.
