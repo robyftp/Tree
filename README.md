@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
