@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
