@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
