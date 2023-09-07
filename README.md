@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
