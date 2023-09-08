@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
