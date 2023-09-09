@@ -1,1 +1,2 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
