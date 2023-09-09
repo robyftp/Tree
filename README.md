@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## What does a clock do when it's hungry? It goes back four seconds!
