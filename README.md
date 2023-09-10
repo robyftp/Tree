@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
