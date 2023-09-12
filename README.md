@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Why did the barber win the race? He took a short cut.
