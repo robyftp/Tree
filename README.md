@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## How does a scientist freshen their breath? With experi-mints!
