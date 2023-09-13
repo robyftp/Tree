@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
