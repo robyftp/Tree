@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
