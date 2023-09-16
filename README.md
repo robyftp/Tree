@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Two guys walked into a bar, the third one ducked.
