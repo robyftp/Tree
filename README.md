@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
