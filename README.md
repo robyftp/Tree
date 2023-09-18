@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
