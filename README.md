@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
