@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
