@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
