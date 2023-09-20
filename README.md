@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
