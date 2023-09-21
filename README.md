@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why did the house go to the doctor? It was having window panes.
