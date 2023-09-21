@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## When does a joke become a dad joke? When it becomes apparent.
