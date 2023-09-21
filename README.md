@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Where do hamburgers go to dance? The meat-ball.
