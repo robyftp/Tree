@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## I'd like to start a diet, but I've got too much on my plate right now.
