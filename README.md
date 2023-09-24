@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
