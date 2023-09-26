@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What’s E.T. short for? He’s only got little legs.
