@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
