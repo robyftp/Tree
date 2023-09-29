@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Why can't a bicycle stand on its own? It's two-tired.
