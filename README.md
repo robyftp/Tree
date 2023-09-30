@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why did the tomato blush? Because it saw the salad dressing.
