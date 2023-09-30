@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What biscuit does a short person like? Shortbread. 
