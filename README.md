@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
