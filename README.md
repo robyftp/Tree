@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why was Pavlov's beard so soft?  Because he conditioned it.
