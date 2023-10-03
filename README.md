@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
