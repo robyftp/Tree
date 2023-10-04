@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What's red and bad for your teeth? A Brick.
