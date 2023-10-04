@@ -1,1 +1,2 @@
-## What's red and bad for your teeth? A Brick.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
