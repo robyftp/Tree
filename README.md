@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
