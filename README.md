@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
