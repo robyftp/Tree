@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
