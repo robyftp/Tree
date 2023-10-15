@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I thought about going on an all-almond diet. But that's just nuts.
