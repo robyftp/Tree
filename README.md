@@ -1,3 +1,1 @@
-## Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. 
-## He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. 
-## This made him a super calloused fragile mystic hexed by halitosis.
+## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
