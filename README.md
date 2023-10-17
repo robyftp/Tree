@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why was the broom late for the meeting? He overswept.
