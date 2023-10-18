@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What did the ocean say to the beach? Thanks for all the sediment.
