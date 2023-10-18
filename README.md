@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What is a vampire's favorite fruit? A blood orange.
