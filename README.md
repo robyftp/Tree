@@ -1,1 +1,2 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
