@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What has ears but cannot hear? A field of corn.
