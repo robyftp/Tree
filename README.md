@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## I used to be addicted to soap, but I'm clean now.
