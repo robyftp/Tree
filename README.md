@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## My wife said I was immature. So I told her to get out of my fort.
