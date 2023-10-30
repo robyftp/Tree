@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
