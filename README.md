@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the tree go to the dentist? It needed a root canal.
