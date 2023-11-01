@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I gave all my dead batteries away today, free of charge.
