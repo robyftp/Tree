@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
