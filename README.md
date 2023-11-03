@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Have you heard about corduroy pillows?  They're making headlines!
