@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
