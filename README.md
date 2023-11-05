@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## What do you call a dad that has fallen through the ice? A Popsicle.
