@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Geology rocks, but Geography is where it's at!
