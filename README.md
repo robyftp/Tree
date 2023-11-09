@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
