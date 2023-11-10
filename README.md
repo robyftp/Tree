@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What has three letters and starts with gas? A Car.
