@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I don't trust stairs. They're always up to something.
