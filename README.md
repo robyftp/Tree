@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## This furniture store keeps emailing me, all I wanted was one night stand!
