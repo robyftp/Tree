@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
