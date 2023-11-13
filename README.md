@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
