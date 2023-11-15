@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Mountains aren't just funny, they are hill areas
