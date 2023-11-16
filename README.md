@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
