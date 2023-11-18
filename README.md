@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What do you call a bear with no teeth? A gummy bear!
