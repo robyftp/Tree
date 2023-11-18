@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
