@@ -1,1 +1,3 @@
-## If two vegans are having an argument, is it still considered beef?
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
