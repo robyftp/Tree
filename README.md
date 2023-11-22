@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
