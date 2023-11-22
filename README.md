@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
