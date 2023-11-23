@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
