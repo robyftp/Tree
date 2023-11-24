@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What has three letters and starts with gas? A Car.
