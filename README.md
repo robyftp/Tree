@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Why do ducks make great detectives? They always quack the case.
