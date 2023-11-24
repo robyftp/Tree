@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## “My Dog has no nose.” “How does he smell?” “Awful”
