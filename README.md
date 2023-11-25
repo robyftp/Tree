@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why did the sentence fail the driving test? It never came to a full stop.
