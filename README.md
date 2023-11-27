@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
