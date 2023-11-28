@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
