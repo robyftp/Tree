@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
