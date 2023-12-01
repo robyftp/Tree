@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
