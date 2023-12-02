@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
