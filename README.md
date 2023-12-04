@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## What musical instrument is found in the bathroom? A tuba toothpaste.
