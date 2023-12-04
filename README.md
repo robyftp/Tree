@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
