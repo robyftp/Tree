@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## I got fired from a florist, apparently I took too many leaves.
