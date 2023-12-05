@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
