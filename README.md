@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Where do rabbits go after they get married? On a bunny-moon.
