@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why don't eggs tell jokes? They'd crack each other up
