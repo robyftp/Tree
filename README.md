@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
