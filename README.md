@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Shout out to my grandma, that's the only way she can hear.
