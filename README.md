@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## How do you organize a space party? You planet.
