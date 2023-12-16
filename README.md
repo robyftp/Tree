@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I'm glad I know sign language, it's pretty handy.
