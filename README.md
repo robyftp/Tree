@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why was the strawberry sad? Its parents were in a jam.
