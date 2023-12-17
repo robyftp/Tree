@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
