@@ -1,1 +1,2 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
