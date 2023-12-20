@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## I thought about going on an all-almond diet. But that's just nuts.
