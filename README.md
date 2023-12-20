@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
