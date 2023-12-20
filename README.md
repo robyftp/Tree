@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
