@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
