@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
