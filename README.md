@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## What was a more important invention than the first telephone? The second one.
