@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What did the shy pebble wish for? That she was a little boulder.
