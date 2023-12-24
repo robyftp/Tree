@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
