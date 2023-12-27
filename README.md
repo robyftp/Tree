@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
