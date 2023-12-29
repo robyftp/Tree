@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
