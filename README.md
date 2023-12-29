@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
