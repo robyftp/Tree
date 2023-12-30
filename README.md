@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
