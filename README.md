@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## My wife said I was immature. So I told her to get out of my fort.
