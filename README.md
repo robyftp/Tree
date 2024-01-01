@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
