@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
