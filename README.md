@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
