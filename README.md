@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
