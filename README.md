@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
