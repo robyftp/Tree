@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Chances are if you' ve seen one shopping center, you've seen a mall.
