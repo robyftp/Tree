@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
