@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
