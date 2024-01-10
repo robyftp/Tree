@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
