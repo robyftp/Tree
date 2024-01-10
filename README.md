@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What do you call an alligator in a vest? An in-vest-igator!
