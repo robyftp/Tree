@@ -1,1 +1,2 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
