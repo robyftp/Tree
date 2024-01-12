@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
