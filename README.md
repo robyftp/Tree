@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## When do doctors get angry? When they run out of patients.
