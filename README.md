@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why are ghosts bad liars? Because you can see right through them!
