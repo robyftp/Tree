@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Atheism is a non-prophet organisation.
