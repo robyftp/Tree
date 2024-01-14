@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Two peanuts were walking down the street. One was a salted.
