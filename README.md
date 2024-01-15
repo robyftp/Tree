@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## The urge to sing the Lion King song is just a whim away.
