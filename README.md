@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## I used to be addicted to the hokey pokey, but I turned myself around.
