@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
