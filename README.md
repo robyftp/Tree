@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## I used to think I was indecisive, but now I'm not sure.
