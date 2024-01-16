@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
