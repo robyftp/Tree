@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
