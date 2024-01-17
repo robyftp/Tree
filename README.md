@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
