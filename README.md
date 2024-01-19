@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
