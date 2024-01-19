@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Ever wondered why bees hum? It's because they don't know the words.
