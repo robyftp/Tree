@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
