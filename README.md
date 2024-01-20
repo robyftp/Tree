@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
