@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
