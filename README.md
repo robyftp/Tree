@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
