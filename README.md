@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## When does a joke become a dad joke? When it becomes apparent.
