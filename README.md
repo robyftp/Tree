@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What kind of bagel can fly? A plain bagel.
