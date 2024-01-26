@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## I used to work for a soft drink can crusher. It was soda pressing.
