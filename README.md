@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
