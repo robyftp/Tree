@@ -1,1 +1,3 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
