@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## How do you make Lady Gaga cry? Poker face. 
