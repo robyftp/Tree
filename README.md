@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
