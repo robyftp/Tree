@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
