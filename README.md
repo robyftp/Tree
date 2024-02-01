@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
