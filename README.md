@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Did you hear about the two thieves who stole a calendar? They each got six months.
