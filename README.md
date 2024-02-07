@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
