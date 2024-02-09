@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Our wedding was so beautiful, even the cake was in tiers.
