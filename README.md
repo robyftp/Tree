@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
