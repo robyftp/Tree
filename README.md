@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Where did you learn to make ice cream? Sunday school.
