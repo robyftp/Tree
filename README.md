@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
