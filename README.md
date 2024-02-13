@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
