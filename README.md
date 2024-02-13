@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## How many South Americans does it take to change a lightbulb? A Brazilian
