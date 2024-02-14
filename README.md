@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## I considered building the patio by myself. But I didn't have the stones.
