@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## How come the stadium got hot after the game? Because all of the fans left.
