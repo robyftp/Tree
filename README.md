@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
