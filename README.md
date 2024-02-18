@@ -1,1 +1,2 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
