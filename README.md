@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
