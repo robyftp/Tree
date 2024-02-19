@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
