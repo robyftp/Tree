@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
