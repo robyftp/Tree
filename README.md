@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## I thought about going on an all-almond diet. But that's just nuts.
