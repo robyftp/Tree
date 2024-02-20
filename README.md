@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
