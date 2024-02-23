@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## How do you get a baby alien to sleep?  You rocket.
