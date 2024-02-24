@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
