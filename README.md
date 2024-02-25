@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
