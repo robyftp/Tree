@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## People are shocked to discover I have a police record but I love their greatest hits!
