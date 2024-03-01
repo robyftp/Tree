@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Shout out to my grandma, that's the only way she can hear.
