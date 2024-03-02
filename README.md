@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## What did the digital clock say to the grandfather clock? Look, no hands!
