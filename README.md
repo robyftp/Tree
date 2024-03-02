@@ -1,1 +1,3 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
