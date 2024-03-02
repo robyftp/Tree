@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Shout out to my grandma, that's the only way she can hear.
