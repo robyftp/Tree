@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
