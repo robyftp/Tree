@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## This morning I was wondering where the sun was, but then it dawned on me.
