@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
