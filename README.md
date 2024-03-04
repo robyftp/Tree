@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
