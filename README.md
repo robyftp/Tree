@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
