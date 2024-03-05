@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Slept like a log last night … woke up in the fireplace.
