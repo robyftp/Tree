@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
