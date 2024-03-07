@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What did the pirate say on his 80th birthday? Aye Matey!
