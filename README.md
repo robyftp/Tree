@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## How do you get two whales in a car? Start in England and drive West.
