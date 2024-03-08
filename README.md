@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why can't a bicycle stand on its own? It's two-tired.
