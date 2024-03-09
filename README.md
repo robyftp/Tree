@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
