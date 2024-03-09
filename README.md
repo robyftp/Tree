@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
