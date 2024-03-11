@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## I'd like to start a diet, but I've got too much on my plate right now.
