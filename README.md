@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
