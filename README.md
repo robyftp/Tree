@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Geology rocks, but Geography is where it's at!
