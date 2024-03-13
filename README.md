@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
