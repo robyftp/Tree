@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
