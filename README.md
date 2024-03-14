@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
