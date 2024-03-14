@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
