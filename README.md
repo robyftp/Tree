@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
