@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
