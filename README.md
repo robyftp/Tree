@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
