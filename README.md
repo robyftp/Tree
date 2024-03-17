@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
