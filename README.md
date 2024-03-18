@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What did the pirate say on his 80th birthday? Aye Matey!
