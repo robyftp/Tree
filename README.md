@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
