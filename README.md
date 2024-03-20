@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## I wanted to be a tailor but I didn't suit the job
