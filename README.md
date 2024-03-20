@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## I’m on a whiskey diet. I’ve lost three days already.
