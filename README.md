@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
