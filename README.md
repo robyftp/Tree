@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
