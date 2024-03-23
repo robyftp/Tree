@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Why do bears have hairy coats? Fur protection.
