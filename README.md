@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why can't a bicycle stand on its own? It's two-tired.
