@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
