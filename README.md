@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
