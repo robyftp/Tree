@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
