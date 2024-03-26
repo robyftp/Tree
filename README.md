@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
