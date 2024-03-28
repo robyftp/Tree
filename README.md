@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
