@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## What do bees do after they are married? They go on a honeymoon.
