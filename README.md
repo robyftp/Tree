@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
