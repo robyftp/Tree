@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
