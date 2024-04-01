@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I wouldn't buy anything with velcro. It's a total rip-off.
