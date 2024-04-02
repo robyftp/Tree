@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why do bears have hairy coats? Fur protection.
