@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
