@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
