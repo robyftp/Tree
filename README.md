@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
