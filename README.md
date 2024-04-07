@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I have kleptomania, but when it gets bad, I take something for it.
