@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
