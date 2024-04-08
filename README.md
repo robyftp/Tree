@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
