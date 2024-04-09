@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
