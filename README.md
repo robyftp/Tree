@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
