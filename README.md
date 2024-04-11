@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
