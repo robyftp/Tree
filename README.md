@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
