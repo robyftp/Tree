@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What does a clock do when it's hungry? It goes back four seconds!
