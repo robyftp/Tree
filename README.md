@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
