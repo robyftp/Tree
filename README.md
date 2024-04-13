@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## The best time on a clock is 6:30--hands down.
