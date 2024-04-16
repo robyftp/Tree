@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## I used to hate facial hair, but then it grew on me.
