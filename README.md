@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
