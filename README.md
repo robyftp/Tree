@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Why are ghosts bad liars? Because you can see right through them!
