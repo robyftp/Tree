@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why did the half blind man fall in the well? Because he couldn't see that well!
