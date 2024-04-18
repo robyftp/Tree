@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## What happens to a frog's car when it breaks down? It gets toad.
