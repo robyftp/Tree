@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
