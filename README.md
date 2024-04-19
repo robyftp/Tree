@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
