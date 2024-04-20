@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
