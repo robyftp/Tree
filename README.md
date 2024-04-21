@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## I was in an 80's band called the prevention. We were better than the cure.
