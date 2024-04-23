@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## Why didn’t the skeleton cross the road? Because he had no guts.
