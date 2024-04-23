@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Why did the barber win the race? He took a short cut.
