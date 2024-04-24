@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
