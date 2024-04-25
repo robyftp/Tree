@@ -1,1 +1,1 @@
-## To be Frank, I'd have to change my name.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
