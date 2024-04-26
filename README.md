@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I used to be addicted to the hokey pokey, but I turned myself around.
