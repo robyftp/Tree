@@ -1,3 +1,2 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What's the difference between a seal and a sea lion?
+## An ion! 
