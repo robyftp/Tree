@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Man, I really love my furniture... me and my recliner go way back.
