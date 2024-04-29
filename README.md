@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
