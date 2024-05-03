@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## New atoms frequently lose electrons when they fail to keep an ion them.
