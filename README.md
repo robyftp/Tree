@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Whoever invented the knock-knock joke should get a no bell prize.
