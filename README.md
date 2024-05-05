@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
