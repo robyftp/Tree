@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
