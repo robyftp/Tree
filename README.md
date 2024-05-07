@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
