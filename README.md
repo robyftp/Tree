@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
