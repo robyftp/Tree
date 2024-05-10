@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
