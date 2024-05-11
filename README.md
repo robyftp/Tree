@@ -1,1 +1,1 @@
-## What's the worst thing about ancient history class? The teachers tend to Babylon.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
