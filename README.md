@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
