@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
