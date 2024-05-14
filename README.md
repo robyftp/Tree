@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
