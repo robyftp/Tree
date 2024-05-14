@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
