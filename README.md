@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why are graveyards so noisy? Because of all the coffin.
