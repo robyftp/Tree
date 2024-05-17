@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
