@@ -1,1 +1,2 @@
-## What has ears but cannot hear? A field of corn.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
