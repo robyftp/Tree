@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Leather is great for sneaking around because it's made of hide.
