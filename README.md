@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
