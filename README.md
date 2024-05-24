@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
