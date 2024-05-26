@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I burned 2000 calories today, I left my food in the oven for too long.
