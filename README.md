@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Want to hear a joke about construction? Nah, I'm still working on it.
