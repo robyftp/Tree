@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
