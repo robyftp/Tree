@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
