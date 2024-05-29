@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## I’ll tell you something about German sausages, they’re the wurst
