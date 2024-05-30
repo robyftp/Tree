@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
