@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## It doesn't matter how much you push the envelope. It will still be stationary.
