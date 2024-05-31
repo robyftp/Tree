@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What did the left eye say to the right eye? Between us, something smells!
