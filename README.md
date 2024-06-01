@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
