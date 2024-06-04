@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Where did Captain Hook get his hook? From a second hand store.
