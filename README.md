@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## To the guy who invented zero... thanks for nothing.
