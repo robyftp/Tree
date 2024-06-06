@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
