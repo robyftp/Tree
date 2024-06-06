@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## There’s a new type of broom out, it’s sweeping the nation.
