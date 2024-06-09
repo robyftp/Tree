@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## I used to hate facial hair, but then it grew on me.
