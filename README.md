@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What's orange and sounds like a parrot? A Carrot.
