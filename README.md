@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Where do rabbits go after they get married? On a bunny-moon.
