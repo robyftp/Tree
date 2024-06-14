@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## I just wrote a book on reverse psychology. Do not read it!
