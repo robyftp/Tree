@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## An apple a day keeps the bullies away. If you throw it hard enough.
