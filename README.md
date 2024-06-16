@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
