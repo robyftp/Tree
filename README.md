@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
