@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
