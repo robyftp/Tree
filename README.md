@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why don't sharks eat clowns?  Because they taste funny.
