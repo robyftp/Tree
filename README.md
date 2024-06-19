@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Slept like a log last night … woke up in the fireplace.
