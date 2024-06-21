@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Two silk worms had a race. They ended up in a tie.
