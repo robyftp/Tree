@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
