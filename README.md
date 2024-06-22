@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
