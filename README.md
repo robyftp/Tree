@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What do you call a bear with no teeth? A gummy bear!
