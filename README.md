@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What did one plate say to the other plate? Dinner is on me!
