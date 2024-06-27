@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
