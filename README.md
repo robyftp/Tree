@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
