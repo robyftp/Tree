@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
