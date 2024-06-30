@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
