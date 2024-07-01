@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I was thinking about moving to Moscow but there is no point Russian into things.
