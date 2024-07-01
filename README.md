@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
