@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why did the knife dress up in a suit? Because it wanted to look sharp
