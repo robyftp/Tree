@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## What did the ocean say to the shore? Nothing, it just waved.
