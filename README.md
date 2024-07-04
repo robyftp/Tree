@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
