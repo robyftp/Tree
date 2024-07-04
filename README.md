@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## My boss told me to have a good day... so I went home.
