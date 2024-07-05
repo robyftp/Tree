@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
