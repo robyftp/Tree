@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
