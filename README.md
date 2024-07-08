@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
