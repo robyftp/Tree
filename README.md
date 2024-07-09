@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
