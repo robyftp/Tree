@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## A steak pun is a rare medium well done.
