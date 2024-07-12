@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
