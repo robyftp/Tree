@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
