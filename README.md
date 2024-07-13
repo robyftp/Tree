@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What's the best thing about elevator jokes? They work on so many levels.
