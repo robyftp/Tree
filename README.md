@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why do birds fly south for the winter? Because it's too far to walk.
