@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
