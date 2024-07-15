@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
