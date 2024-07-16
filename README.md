@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
