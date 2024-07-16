@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why do cows not have toes? They lactose!
