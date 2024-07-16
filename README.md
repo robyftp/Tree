@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## A cannibal is someone who is fed up with people.
