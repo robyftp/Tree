@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What's brown and sticky? A stick.
