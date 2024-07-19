@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
