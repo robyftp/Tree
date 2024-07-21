@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
