@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
