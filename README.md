@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I was in an 80's band called the prevention. We were better than the cure.
