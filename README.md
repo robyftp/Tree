@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why did the feline fail the lie detector test? Because he be lion.
