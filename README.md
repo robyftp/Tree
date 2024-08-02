@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
