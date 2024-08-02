@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
