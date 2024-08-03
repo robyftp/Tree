@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
