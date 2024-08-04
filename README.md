@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What does a pirate pay for his corn? A buccaneer!
