@@ -1,1 +1,1 @@
-## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
