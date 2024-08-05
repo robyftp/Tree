@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## What kind of tree fits in your hand? A palm tree!
