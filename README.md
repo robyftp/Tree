@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
