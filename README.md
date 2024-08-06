@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## What did the digital clock say to the grandfather clock? Look, no hands!
