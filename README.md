@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Did you hear about the kidnapping at school? It's ok, he woke up.
