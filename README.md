@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Where did Captain Hook get his hook? From a second hand store.
