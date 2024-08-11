@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why can't eggs have love? They will break up too soon.
