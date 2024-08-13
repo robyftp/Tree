@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
