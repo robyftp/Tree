@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
