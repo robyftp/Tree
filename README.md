@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
