@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
