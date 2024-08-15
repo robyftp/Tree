@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
