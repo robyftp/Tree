@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Man, I really love my furniture... me and my recliner go way back.
