@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
