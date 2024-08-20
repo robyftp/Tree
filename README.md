@@ -1,1 +1,2 @@
-## The rotation of earth really makes my day.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
