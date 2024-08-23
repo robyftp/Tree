@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why are ghosts bad liars? Because you can see right through them!
