@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
