@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
