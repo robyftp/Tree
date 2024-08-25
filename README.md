@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## It doesn't matter how much you push the envelope. It will still be stationary.
