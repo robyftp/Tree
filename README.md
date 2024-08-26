@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
