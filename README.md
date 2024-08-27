@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What do you call your friend who stands in a hole? Phil.
