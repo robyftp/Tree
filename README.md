@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
