@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
