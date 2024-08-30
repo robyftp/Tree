@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
