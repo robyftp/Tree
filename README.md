@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Leather is great for sneaking around because it's made of hide.
