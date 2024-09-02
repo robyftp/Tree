@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
