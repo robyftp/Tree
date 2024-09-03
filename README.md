@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Remember, the best angle to approach a problem from is the "try" angle.
