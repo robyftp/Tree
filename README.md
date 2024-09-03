@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I have kleptomania, but when it gets bad, I take something for it.
