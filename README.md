@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Me and my mates are in a band called Duvet. We're a cover band.
