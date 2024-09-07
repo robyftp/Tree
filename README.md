@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
