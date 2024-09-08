@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## How do you make a hankie dance? Put a little boogie in it.
