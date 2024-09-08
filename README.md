@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What's red and bad for your teeth? A Brick.
