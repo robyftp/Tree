@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
