@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
