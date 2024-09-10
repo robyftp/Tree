@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
