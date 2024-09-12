@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## If I could name myself after any Egyptian god, I'd be Set.
