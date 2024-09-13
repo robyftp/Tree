@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
