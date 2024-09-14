@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## How do you teach a kid to climb stairs? There is a step by step guide.
