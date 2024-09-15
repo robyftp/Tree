@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
