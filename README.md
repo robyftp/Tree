@@ -1,1 +1,3 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
