@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why didn’t the orange win the race? It ran out of juice.
