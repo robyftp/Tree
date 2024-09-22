@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
