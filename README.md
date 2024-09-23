@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
