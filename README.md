@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## I wouldn't buy anything with velcro. It's a total rip-off.
