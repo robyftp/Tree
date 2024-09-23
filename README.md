@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
