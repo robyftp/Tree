@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
