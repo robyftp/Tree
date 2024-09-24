@@ -1,1 +1,2 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
