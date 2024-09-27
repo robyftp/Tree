@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
