@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
