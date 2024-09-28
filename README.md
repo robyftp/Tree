@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
