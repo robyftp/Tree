@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Where do rabbits go after they get married? On a bunny-moon.
