@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
