@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## “My Dog has no nose.” “How does he smell?” “Awful”
