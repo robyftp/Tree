@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Where’s the bin? Dad: I haven’t been anywhere!
