@@ -1,1 +1,2 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
