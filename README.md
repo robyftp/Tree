@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
