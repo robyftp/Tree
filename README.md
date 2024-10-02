@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
