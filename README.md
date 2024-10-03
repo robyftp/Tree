@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
