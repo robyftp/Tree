@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Why did the sentence fail the driving test? It never came to a full stop.
