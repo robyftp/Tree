@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What do computers and air conditioners have in common? They both become useless when you open windows.
