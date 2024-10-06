@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Leather is great for sneaking around because it's made of hide.
