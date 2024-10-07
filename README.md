@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I tried to write a chemistry joke, but could never get a reaction.
