@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
