@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I’m on a whiskey diet. I’ve lost three days already.
