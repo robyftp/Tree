@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What kind of dinosaur loves to sleep? A stega-snore-us.
