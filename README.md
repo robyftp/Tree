@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## How do locomotives know where they're going? Lots of training
