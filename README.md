@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
