@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
