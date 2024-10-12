@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Where did you learn to make ice cream? Sunday school.
