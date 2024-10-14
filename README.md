@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## What was a more important invention than the first telephone? The second one.
