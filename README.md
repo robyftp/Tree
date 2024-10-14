@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## I’m only familiar with 25 letters in the English language. I don’t know why.
