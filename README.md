@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
