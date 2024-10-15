@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
