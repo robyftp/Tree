@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## what do you call a dog that can do magic tricks? a labracadabrador
