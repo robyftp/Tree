@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## People are making apocalypse jokes like there’s no tomorrow.
