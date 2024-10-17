@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
