@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## What’s E.T. short for? He’s only got little legs.
