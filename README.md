@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
