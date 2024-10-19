@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why was ten scared of seven? Because seven ate nine.
