@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
