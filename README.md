@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
