@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
