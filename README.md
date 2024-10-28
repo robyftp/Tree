@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
