@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What don't watermelons get married? Because they cantaloupe.
