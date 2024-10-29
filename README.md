@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
