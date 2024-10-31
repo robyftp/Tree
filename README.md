@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
