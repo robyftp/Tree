@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
