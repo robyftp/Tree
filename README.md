@@ -1,1 +1,3 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
