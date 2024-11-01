@@ -1,3 +1,3 @@
-## What's the worst part about being a cross-eyed teacher?
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
 ## 
-## They can't control their pupils.
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
