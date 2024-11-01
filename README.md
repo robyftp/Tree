@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
