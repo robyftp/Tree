@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## What did the left eye say to the right eye? Between us, something smells!
