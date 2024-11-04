@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## What do I look like? A JOKE MACHINE!?
