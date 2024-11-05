@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
