@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## The urge to sing the Lion King song is just a whim away.
