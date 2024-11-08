@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## What did the ocean say to the beach? Thanks for all the sediment.
