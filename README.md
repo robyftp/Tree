@@ -1,1 +1,1 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
