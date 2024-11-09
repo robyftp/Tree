@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
