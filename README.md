@@ -1,1 +1,2 @@
-## What do you call a pig with three eyes? Piiig
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
