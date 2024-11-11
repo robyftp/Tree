@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
