@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
