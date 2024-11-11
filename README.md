@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What did the pirate say on his 80th birthday? Aye Matey!
