@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
