@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
