@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
