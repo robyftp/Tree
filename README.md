@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
