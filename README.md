@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
