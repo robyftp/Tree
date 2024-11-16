@@ -1,2 +1,2 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What is the best way to carve?
+## Whittle by whittle.
