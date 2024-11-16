@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
