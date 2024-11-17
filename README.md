@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What's a ninja's favorite type of shoes? Sneakers!
