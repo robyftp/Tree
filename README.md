@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
