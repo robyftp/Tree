@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
