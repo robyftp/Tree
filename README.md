@@ -1,1 +1,2 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
