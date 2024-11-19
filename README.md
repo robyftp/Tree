@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## How many South Americans does it take to change a lightbulb? A Brazilian
