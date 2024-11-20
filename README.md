@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Where does astronauts hangout after work? At the spacebar.
