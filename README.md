@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## Why is it so windy inside an arena? All those fans.
