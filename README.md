@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
