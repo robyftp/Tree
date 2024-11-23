@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
