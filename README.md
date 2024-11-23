@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## What does an angry pepper do? It gets jalapeño face.
