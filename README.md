@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
