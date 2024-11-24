@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
