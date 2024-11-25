@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
