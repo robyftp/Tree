@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
