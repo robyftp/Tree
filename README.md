@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
