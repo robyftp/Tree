@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What's brown and sticky? A stick.
