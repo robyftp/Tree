@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Why are ghosts bad liars? Because you can see right through them!
