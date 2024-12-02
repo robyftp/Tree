@@ -1,1 +1,1 @@
-## What do you call a girl between two posts? Annette.
+## What did one wall say to the other wall? I'll meet you at the corner!
