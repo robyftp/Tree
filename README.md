@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
