@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## What do you call a fat psychic? A four-chin teller.
