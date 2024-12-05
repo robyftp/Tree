@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What did one wall say to the other wall? I'll meet you at the corner!
