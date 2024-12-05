@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why can't a bicycle stand on its own? It's two-tired.
