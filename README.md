@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
