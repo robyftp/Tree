@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
