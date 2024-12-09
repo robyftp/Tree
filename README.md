@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What kind of award did the dentist receive? A little plaque.
