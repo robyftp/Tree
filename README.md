@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## I thought about going on an all-almond diet. But that's just nuts.
