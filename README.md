@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
