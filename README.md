@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I couldn't get a reservation at the library. They were completely booked.
