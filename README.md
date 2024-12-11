@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
