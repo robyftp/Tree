@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
