@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
