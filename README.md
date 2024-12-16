@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## I used to work in a shoe recycling shop. It was sole destroying.
