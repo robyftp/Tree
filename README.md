@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
