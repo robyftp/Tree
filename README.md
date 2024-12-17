@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
