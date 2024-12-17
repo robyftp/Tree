@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
