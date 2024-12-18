@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
