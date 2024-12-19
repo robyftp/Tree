@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why did the house go to the doctor? It was having window panes.
