@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## An apple a day keeps the bullies away. If you throw it hard enough.
