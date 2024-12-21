@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
