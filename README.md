@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What’s E.T. short for? He’s only got little legs.
