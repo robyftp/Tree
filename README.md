@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
