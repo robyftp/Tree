@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
