@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What does a pirate pay for his corn? A buccaneer!
