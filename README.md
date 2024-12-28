@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
