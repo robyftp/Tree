@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## How does a French skeleton say hello? Bone-jour.
