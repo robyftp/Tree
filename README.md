@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What did one nut say as he chased another nut?  I'm a cashew!
