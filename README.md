@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## To the guy who invented zero... thanks for nothing.
