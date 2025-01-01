@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why did the clown have neck pain? - Because he slept funny
