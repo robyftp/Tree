@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
