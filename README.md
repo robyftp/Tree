@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
