@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
