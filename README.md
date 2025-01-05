@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
