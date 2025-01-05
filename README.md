@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Don't tell secrets in corn fields. Too many ears around.
