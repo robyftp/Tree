@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
