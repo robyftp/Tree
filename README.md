@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
