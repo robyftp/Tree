@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I boiled a funny bone last night and had a laughing stock
