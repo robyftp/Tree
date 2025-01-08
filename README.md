@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
