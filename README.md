@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
