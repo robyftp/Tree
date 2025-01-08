@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
