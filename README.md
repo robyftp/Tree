@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
