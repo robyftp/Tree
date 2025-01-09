@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## Did you hear the joke about the wandering nun? She was a roman catholic.
