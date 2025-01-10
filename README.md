@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
