@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I had a dream that I was a muffler last night. I woke up exhausted!
