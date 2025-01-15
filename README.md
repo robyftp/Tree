@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Thanks for explaining the word "many" to me. It means a lot.
