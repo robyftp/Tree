@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
