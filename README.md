@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
