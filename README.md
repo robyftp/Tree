@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
