@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What do you call a cow on a trampoline? A milk shake!
