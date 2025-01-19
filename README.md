@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## “My Dog has no nose.” “How does he smell?” “Awful”
