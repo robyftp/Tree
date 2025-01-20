@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
