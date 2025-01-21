@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
