@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I just got fired from a florist, apparently I took too many leaves.
