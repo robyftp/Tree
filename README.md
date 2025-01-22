@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## What's orange and sounds like a parrot? A Carrot.
