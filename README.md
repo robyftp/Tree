@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
