@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
