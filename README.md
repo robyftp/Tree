@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
