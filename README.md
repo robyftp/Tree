@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
