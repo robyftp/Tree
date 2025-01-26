@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
