@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do you call a troublesome Canadian high schooler? A poutine.
