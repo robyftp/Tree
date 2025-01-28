@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## I've got a joke about vegetables for you... but it's a bit corny.
