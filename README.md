@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
