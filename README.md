@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
