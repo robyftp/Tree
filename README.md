@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## What did one plate say to the other plate? Dinner is on me!
