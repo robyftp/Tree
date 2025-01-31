@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
