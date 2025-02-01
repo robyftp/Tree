@@ -1,1 +1,1 @@
-## What do you call a female snake. misssssssss 
+## What do you call a fat psychic? A four-chin teller.
