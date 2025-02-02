@@ -1,1 +1,2 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
