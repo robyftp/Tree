@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
