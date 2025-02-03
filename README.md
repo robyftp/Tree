@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
