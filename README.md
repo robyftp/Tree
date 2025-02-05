@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
