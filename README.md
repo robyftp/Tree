@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why was it called the dark ages? Because of all the knights. 
