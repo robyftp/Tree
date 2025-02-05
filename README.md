@@ -1,1 +1,3 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
