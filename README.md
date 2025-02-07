@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
