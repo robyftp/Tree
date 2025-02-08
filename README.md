@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Why did the banana go to the doctor? He was not "peeling" well.
