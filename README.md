@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## How many bones are in the human hand? A handful of them.
