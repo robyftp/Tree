@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I was wondering why the frisbee was getting bigger, then it hit me.
