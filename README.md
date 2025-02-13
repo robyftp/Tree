@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
