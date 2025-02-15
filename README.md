@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
