@@ -1,1 +1,2 @@
-## Two guys walked into a bar, the third one ducked.
+## Where do cats write notes?
+## Scratch Paper!
