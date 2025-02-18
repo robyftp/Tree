@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why do pirates not know the alphabet? They always get stuck at "C".
