@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
