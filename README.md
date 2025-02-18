@@ -1,1 +1,2 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
