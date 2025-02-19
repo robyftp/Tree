@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
