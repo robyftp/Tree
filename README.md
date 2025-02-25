@@ -1,1 +1,1 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
