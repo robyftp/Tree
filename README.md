@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## What does a pirate pay for his corn? A buccaneer!
