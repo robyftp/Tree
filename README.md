@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## What did the shy pebble wish for? That she was a little boulder.
