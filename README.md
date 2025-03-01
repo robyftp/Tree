@@ -1,1 +1,3 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
