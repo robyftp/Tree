@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
