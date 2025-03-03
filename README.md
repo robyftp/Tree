@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Don't tell secrets in corn fields. Too many ears around.
