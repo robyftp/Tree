@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why do birds fly south for the winter? Because it's too far to walk.
