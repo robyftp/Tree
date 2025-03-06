@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## I couldn't get a reservation at the library. They were completely booked.
