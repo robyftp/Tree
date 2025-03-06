@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why are mummys scared of vacation? They're afraid to unwind.
