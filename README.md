@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
