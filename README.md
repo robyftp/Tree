@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
