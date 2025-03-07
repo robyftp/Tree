@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
