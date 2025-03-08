@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
