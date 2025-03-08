@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
