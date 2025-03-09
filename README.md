@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Did you know that ghosts call their true love their ghoul-friend?
