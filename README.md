@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
