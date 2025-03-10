@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
