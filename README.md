@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
