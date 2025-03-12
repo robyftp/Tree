@@ -1,1 +1,3 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
