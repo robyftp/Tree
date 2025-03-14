@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What did the piece of bread say to the knife? Butter me up.
