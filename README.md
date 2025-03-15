@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## What's orange and sounds like a parrot? A Carrot.
