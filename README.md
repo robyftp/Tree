@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## What did the sea say to the sand? "We have to stop meeting like this."
