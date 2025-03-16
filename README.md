@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
