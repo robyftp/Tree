@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I used to work for a soft drink can crusher. It was soda pressing.
