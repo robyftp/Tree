@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
