@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## People who don't eat gluten are really going against the grain.
