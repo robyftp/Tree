@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Man, I really love my furniture... me and my recliner go way back.
