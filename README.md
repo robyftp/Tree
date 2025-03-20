@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
