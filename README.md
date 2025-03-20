@@ -1,1 +1,1 @@
-## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
