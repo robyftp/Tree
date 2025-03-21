@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## What kind of pants do ghosts wear? Boo jeans.
