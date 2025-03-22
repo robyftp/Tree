@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## I used to be addicted to the hokey pokey, but I turned myself around.
