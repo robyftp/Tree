@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Don't tell secrets in corn fields. Too many ears around.
