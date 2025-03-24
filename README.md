@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
