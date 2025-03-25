@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
