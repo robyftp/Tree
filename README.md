@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Breaking news! Energizer Bunny arrested – charged with battery.
