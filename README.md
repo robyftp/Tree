@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What did the dog say to the two trees? Bark bark.
