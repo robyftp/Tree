@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
