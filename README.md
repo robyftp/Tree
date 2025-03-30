@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
