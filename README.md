@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
