@@ -1,1 +1,2 @@
-## I went to a Foo Fighters Concert once... It was Everlong...
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
