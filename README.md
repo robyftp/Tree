@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## I got fired from a florist, apparently I took too many leaves.
