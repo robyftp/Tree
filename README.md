@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
