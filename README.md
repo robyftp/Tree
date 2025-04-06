@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## If I could name myself after any Egyptian god, I'd be Set.
