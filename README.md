@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
