@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## “My Dog has no nose.” “How does he smell?” “Awful”
