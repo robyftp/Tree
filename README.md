@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why didn’t the skeleton cross the road? Because he had no guts.
