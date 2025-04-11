@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
