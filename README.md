@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## How do you find Will Smith in the snow?  Look for fresh prints.
