@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
