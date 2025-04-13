@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
