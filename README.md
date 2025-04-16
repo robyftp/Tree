@@ -1,1 +1,2 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
