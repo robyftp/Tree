@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
