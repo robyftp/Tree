@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
