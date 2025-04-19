@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
