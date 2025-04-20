@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
