@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
