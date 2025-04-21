@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
