@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What kind of award did the dentist receive? A little plaque.
