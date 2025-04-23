@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
