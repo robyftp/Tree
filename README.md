@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
