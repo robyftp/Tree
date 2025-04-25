@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
