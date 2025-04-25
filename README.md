@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
