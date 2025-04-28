@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
