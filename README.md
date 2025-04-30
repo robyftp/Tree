@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
