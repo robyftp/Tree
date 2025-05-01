@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
