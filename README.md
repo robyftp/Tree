@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
