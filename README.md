@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
