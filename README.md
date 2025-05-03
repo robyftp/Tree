@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I had a dream that I was a muffler last night. I woke up exhausted!
