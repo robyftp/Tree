@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What’s brown and sounds like a bell? Dung!
