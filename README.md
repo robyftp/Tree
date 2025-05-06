@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## When do doctors get angry? When they run out of patients.
