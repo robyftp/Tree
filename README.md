@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
