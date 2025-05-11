@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What did the grape do when he got stepped on? He let out a little wine.
