@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## How does a French skeleton say hello? Bone-jour.
