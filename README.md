@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Why can't a bicycle stand on its own? It's two-tired.
