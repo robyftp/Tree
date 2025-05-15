@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## How do you find Will Smith in the snow?  Look for fresh prints.
