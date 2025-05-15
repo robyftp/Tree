@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## How do locomotives know where they're going? Lots of training
