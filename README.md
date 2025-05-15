@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## "I'll call you later." Don't call me later, call me Dad.
