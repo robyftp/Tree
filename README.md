@@ -1,1 +1,3 @@
-## I got fired from the transmission factor, turns out I didn't put on enough shifts...
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
