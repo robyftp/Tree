@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## I can't take my dog to the pond anymore because the ducks keep attacking him. That's what I get for buying a pure bread dog.
