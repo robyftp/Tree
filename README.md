@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Which side of the chicken has more feathers? The outside.
