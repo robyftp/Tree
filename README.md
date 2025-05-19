@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## A magician was driving down the street and then he turned into a driveway.
