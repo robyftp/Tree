@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
