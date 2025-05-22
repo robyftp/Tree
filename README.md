@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
