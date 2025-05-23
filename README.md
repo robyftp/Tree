@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
