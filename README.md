@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why didn’t the skeleton cross the road? Because he had no guts.
