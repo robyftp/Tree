@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
