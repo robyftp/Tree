@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
