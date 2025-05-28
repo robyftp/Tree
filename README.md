@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
