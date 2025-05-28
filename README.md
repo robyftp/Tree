@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Me and my mates are in a band called Duvet. We're a cover band.
