@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why was the big cat disqualified from the race? Because it was a cheetah.
