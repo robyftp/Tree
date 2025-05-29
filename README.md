@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
