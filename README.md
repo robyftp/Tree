@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
