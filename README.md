@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I considered building the patio by myself. But I didn't have the stones.
