@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
