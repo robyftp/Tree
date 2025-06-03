@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## How can you tell a vampire has a cold? They start coffin.
