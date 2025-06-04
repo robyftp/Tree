@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## I've got a joke about vegetables for you... but it's a bit corny.
