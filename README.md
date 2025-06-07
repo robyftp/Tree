@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
