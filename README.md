@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
