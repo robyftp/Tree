@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
