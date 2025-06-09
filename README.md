@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
