@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
