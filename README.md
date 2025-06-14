@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
