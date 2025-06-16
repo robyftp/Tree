@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## How much does a hipster weigh? An instagram.
