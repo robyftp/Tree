@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## My wife said I was immature. So I told her to get out of my fort.
