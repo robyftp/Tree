@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
