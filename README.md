@@ -1,1 +1,3 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
