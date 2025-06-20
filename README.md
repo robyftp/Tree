@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
