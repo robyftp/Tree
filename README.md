@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
