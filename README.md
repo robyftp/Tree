@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## What kind of award did the dentist receive? A little plaque.
