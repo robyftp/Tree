@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
