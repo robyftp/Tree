@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
