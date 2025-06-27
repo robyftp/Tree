@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
