@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
