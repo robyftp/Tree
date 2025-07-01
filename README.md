@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
