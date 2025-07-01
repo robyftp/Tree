@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Where do sheep go to get their hair cut? The baa-baa shop.
