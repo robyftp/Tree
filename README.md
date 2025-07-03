@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
