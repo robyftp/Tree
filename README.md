@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
