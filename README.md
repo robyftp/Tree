@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
