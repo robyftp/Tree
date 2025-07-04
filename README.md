@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
