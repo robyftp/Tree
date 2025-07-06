@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call a cow on a trampoline? A milk shake!
