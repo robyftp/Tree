@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## What is a witch's favorite subject in school? Spelling!
