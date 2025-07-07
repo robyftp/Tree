@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
