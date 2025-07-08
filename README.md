@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
