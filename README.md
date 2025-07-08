@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
