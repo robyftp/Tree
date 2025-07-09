@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
