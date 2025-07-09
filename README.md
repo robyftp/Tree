@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
