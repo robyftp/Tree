@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
