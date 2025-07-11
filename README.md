@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
