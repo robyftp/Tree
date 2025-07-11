@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## I burned 2000 calories today, I left my food in the oven for too long.
