@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
