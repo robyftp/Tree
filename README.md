@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Where does astronauts hangout after work? At the spacebar.
