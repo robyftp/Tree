@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
