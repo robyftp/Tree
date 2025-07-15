@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## What did one snowman say to the other snow man? Do you smell carrot?
