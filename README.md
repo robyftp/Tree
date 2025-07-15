@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What does a clock do when it's hungry? It goes back four seconds!
