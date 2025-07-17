@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
