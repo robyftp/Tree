@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
