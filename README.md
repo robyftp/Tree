@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
