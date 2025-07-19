@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
