@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
