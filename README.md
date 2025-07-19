@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
