@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## There's not really any training for garbagemen. They just pick things up as they go.
