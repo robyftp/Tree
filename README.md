@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## what do you call a dog that can do magic tricks? a labracadabrador
