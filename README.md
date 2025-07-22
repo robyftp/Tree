@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## Why did the octopus beat the shark in a fight? Because it was well armed.
