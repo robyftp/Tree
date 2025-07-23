@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
