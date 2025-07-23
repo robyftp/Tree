@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
