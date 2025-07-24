@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
