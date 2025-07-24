@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## I decided to sell my Hoover… well it was just collecting dust.
