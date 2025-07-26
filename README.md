@@ -1,1 +1,2 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
