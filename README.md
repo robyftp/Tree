@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
