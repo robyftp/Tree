@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
