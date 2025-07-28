@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
