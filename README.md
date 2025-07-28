@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
