@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
