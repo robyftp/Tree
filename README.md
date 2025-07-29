@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
