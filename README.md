@@ -1,1 +1,1 @@
-## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
