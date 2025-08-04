@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
