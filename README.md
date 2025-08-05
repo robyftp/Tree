@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
