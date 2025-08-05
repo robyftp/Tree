@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## I wouldn't buy anything with velcro. It's a total rip-off.
