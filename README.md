@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
