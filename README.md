@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do prisoners use to call each other? Cell phones.
