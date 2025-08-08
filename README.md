@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
