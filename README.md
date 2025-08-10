@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
