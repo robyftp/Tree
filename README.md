@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
