@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
