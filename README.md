@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## I don't trust stairs. They're always up to something.
