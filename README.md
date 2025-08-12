@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What did the ocean say to the shore? Nothing, it just waved.
