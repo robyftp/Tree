@@ -1,1 +1,2 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
+## I have no words to describe how angry I am.
