@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
