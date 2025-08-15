@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## What did the calculator say to the student? You can count on me.
