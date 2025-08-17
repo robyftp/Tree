@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What did the beaver say to the tree? It's been nice gnawing you.
