@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
