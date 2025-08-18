@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
