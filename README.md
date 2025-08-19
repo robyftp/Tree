@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
