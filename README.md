@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
