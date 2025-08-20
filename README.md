@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
