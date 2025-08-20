@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## I've got a joke about vegetables for you... but it's a bit corny.
