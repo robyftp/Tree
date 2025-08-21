@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
