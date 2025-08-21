@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Why do we tell actors to “break a leg?” Because every play has a cast.
