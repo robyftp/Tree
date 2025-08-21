@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I’ll tell you something about German sausages, they’re the wurst
