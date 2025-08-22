@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## You can't run through a camp site. You can only ran, because it's past tents.
