@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
