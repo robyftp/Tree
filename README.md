@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Have you heard about corduroy pillows?  They're making headlines!
