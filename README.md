@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Did you know that ghosts call their true love their ghoul-friend?
