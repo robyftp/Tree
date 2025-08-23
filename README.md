@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why do bears have hairy coats? Fur protection.
