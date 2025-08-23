@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why don't sharks eat clowns?  Because they taste funny.
