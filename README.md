@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
