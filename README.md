@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I'll tell you what often gets over looked... garden fences.
