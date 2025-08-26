@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
