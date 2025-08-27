@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
