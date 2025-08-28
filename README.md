@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What do you call a cow with no legs? Ground beef.
