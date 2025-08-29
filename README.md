@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## How do you teach a kid to climb stairs? There is a step by step guide.
