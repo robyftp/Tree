@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
