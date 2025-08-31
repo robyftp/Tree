@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Which side of the chicken has more feathers? The outside.
