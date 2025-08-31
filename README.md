@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
