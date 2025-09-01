@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What does a female snake use for support? A co-Bra!
