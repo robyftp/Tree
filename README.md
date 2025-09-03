@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
