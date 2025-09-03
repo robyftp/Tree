@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What did the grape do when he got stepped on? He let out a little wine.
