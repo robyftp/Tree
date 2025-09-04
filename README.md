@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What do you call a cow with two legs? Lean beef.
