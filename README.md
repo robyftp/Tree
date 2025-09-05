@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
