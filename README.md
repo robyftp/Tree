@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
