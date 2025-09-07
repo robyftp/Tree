@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why don't eggs tell jokes? They'd crack each other up
