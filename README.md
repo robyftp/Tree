@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What do bees do after they are married? They go on a honeymoon.
