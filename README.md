@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
