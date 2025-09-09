@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
