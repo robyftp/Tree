@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
