@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Writing with a broken pencil is pointless.
