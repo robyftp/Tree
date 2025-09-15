@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
