@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Why is no one friends with Dracula? Because he's a pain in the neck.
