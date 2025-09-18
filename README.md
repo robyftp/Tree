@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
