@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Atheism is a non-prophet organisation.
