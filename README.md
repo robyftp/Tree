@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
