@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
