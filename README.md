@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
