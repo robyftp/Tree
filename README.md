@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
