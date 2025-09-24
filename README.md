@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why can't a bicycle stand on its own? It's two-tired.
