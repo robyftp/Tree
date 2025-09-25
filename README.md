@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
