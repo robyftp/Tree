@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## You can't run through a camp site. You can only ran, because it's past tents.
