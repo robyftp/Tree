@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why do ducks make great detectives? They always quack the case.
