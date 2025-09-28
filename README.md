@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## When does a joke become a dad joke? When it becomes apparent.
