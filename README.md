@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Two guys walked into a bar, the third one ducked.
