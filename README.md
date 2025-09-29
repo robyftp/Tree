@@ -1,1 +1,2 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
