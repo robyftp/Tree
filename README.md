@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
