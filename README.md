@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
