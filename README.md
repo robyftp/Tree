@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
