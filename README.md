@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
