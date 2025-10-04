@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I asked a frenchman if he played video games. He said "Wii"
