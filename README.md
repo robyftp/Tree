@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Where did you learn to make ice cream? Sunday school.
