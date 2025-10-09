@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
