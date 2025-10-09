@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## What did the pirate say on his 80th birthday? Aye Matey!
