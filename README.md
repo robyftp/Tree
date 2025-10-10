@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
