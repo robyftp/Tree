@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
