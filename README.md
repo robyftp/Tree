@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
