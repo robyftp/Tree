@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
