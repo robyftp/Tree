@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
