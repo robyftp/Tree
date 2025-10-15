@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Did you hear about the two thieves who stole a calendar? They each got six months.
