@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
