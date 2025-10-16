@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
