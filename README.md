@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
