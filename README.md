@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
