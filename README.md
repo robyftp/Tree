@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why are fish easy to weigh? Because they have their own scales.
