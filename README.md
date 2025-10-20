@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## A Skeleton walked into a bar he said I need a beer and a mop
