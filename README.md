@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
