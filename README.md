@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## “My Dog has no nose.” “How does he smell?” “Awful”
