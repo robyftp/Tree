@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What do you call a nervous javelin thrower? Shakespeare.
