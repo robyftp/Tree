@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What do bees do after they are married? They go on a honeymoon.
