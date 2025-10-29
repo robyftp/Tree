@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## I’m on a whiskey diet. I’ve lost three days already.
