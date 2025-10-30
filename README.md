@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
