@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
