@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
