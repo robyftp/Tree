@@ -1,1 +1,2 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
