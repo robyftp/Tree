@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
