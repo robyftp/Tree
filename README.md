@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
