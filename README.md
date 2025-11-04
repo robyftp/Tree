@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
