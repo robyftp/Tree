@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
