@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
