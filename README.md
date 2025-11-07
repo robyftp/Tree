@@ -1,1 +1,2 @@
-## You know what they say about cliffhangers...
+## What's large, grey, and doesn't matter?
+## An irrelephant.
