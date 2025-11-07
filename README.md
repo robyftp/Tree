@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
