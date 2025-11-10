@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
