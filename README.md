@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What is the hardest part about sky diving? The ground.
