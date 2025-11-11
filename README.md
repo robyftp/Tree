@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
