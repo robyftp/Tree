@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
