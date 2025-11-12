@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Our wedding was so beautiful, even the cake was in tiers.
