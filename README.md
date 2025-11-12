@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
