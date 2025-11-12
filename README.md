@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## How do robots eat guacamole? With computer chips.
