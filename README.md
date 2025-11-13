@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
