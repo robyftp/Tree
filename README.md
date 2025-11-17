@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
