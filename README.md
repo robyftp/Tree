@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
