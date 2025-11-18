@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## What's black and white and read all over? The newspaper.
