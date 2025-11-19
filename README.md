@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
