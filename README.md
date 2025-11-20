@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
