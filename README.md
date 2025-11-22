@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
