@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
