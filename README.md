@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why did the coffee file a police report? It got mugged.
