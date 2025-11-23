@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
