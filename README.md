@@ -1,2 +1,2 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What did the green grape say to the purple grape?
+## BREATH!!
