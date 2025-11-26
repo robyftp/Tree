@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
