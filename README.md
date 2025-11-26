@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## What don't watermelons get married? Because they cantaloupe.
