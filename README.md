@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
