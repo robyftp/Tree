@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
