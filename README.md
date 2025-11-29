@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
