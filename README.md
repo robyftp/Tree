@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
