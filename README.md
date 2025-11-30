@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
