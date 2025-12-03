@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## A Skeleton walked into a bar he said I need a beer and a mop
