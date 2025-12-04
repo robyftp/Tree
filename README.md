@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
