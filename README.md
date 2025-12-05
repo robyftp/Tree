@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
