@@ -1,1 +1,2 @@
-## What do prisoners use to call each other? Cell phones.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
