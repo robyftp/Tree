@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
