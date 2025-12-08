@@ -1,1 +1,2 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
