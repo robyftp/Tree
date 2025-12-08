@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## I used to hate facial hair, but then it grew on me.
