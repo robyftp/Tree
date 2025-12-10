@@ -1,1 +1,2 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## What is the best way to carve?
+## Whittle by whittle.
