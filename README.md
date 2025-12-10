@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I used to work in a shoe recycling shop. It was sole destroying.
