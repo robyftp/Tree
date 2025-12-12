@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
