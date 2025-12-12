@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
