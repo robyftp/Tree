@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## A magician was driving down the street and then he turned into a driveway.
