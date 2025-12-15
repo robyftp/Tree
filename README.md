@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Why did the scarecrow win an award? Because he was outstanding in his field.
