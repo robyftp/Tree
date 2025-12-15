@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
