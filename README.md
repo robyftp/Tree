@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Someone asked me to name two structures that hold water. I said "Well dam"
