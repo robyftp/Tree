@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Did you hear about the bread factory burning down? They say the business is toast.
