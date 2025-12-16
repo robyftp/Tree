@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why don't eggs tell jokes? They'd crack each other up
