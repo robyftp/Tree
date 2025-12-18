@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## It doesn't matter how much you push the envelope. It will still be stationary.
