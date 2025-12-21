@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
