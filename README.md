@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What did the ocean say to the beach? Thanks for all the sediment.
