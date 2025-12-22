@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
