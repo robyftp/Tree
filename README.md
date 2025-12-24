@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
