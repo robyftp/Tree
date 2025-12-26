@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you call your friend who stands in a hole? Phil.
