@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why did the banana go to the doctor? He was not "peeling" well.
