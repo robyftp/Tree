@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What do you call a monkey in a mine field? A babooooom!
