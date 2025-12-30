@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What did the left eye say to the right eye? Between us, something smells!
