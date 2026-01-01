@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## How come the stadium got hot after the game? Because all of the fans left.
