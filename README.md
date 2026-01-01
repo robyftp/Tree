@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
