@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
