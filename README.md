@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
