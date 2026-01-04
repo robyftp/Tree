@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
