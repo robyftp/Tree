@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## How do you steal a coat? You jacket.
