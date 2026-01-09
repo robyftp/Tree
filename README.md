@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I just wrote a book on reverse psychology. Do not read it!
