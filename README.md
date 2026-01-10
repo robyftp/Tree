@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Where do hamburgers go to dance? The meat-ball.
