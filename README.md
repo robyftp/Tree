@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why do pirates not know the alphabet? They always get stuck at "C".
