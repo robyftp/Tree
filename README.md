@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
