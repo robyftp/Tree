@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the shy pebble wish for? That she was a little boulder.
