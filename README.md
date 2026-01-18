@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## I considered building the patio by myself. But I didn't have the stones.
