@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## Why can't eggs have love? They will break up too soon.
