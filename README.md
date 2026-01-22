@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I used to hate facial hair, but then it grew on me.
