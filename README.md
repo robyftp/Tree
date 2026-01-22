@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why do crabs never give to charity? Because they’re shellfish.
