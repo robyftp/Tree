@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
