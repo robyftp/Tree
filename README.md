@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
