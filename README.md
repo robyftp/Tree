@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
