@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What did the beaver say to the tree? It's been nice gnawing you.
