@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
