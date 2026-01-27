@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why did the melons plan a big wedding? Because they cantaloupe!
