@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
