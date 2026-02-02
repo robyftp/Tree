@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
