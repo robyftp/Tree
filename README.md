@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## What kind of pants do ghosts wear? Boo jeans.
