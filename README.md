@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What do you do when your bunny gets wet? You get your hare dryer.
