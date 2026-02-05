@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What did the left eye say to the right eye? Between us, something smells!
