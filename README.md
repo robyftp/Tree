@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## What kind of bagel can fly? A plain bagel.
