@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did the left eye say to the right eye? Between us, something smells!
