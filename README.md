@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
