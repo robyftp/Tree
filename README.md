@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What do you call someone with no nose? Nobody knows.
