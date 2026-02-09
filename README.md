@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## What did the 0 say to the 8? Nice belt.
