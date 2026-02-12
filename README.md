@@ -1,1 +1,2 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
