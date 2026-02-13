@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
