@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
