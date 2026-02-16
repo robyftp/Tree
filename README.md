@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Me and my mates are in a band called Duvet. We're a cover band.
