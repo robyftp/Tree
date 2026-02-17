@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Where do sheep go to get their hair cut? The baa-baa shop.
