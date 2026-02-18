@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
