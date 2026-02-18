@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## It doesn't matter how much you push the envelope. It will still be stationary.
