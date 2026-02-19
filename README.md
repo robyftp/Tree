@@ -1,1 +1,3 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
