@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
