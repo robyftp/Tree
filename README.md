@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Why was ten scared of seven? Because seven ate nine.
