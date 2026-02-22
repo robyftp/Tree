@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Archaeology really is a career in ruins.
