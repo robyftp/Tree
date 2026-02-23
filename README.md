@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why are mummys scared of vacation? They're afraid to unwind.
