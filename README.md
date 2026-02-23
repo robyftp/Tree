@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
