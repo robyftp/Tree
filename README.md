@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## The urge to sing the Lion King song is just a whim away.
