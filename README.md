@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
