@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
