@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
