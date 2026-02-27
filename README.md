@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
