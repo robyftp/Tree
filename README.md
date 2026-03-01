@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why was the big cat disqualified from the race? Because it was a cheetah.
