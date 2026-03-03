@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why are fish easy to weigh? Because they have their own scales.
