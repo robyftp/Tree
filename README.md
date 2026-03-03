@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## The shovel was a ground-breaking invention.
