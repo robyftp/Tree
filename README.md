@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why do fish live in salt water? Because pepper makes them sneeze!
