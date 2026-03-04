@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
