@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
