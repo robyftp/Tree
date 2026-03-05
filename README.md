@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
