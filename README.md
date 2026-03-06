@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why do bears have hairy coats? Fur protection.
