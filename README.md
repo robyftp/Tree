@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
