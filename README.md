@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why do cows not have toes? They lactose!
