@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Dad, can you put my shoes on? I don't think they'll fit me.
