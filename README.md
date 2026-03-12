@@ -1,1 +1,2 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
