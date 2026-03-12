@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
