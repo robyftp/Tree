@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
