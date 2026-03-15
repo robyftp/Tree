@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
