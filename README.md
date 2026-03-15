@@ -1,1 +1,2 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
