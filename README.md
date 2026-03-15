@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## What do you call an alligator in a vest? An in-vest-igator!
