@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
