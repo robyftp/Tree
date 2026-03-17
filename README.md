@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why was the picture sent to prison? It was framed.
