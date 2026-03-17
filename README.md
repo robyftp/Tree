@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
