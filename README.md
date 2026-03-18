@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Where do young cows eat lunch? In the calf-ateria.
