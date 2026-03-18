@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## What did the piece of bread say to the knife? Butter me up.
