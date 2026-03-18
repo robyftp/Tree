@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## What does a pirate pay for his corn? A buccaneer!
