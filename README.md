@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
