@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## I wouldn't buy anything with velcro. It's a total rip-off.
