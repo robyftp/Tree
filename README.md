@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## Why did the clown have neck pain? - Because he slept funny
