@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why are pirates called pirates? Because they arrr!
