@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
