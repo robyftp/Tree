@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Ever wondered why bees hum? It's because they don't know the words.
