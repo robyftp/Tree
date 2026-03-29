@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Where do rabbits go after they get married? On a bunny-moon.
