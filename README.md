@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
