@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## What's brown and sticky? A stick.
