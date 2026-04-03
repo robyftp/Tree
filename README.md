@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
