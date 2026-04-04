@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
