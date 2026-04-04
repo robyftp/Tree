@@ -1,1 +1,1 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
