@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
