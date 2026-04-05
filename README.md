@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## When does a joke become a dad joke? When it becomes apparent.
