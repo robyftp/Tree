@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## Why do pirates not know the alphabet? They always get stuck at "C".
