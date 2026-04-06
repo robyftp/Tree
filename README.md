@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Why was the picture sent to prison? It was framed.
