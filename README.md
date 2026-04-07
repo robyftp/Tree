@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
