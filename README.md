@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why did the tomato blush? Because it saw the salad dressing.
