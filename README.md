@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Dad, can you put my shoes on? I don't think they'll fit me.
