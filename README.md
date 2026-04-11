@@ -1,1 +1,1 @@
-## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
