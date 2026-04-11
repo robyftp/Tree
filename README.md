@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
