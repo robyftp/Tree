@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
