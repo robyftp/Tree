@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## You can't run through a camp site. You can only ran, because it's past tents.
