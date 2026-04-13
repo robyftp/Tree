@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
