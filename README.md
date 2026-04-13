@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
