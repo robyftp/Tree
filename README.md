@@ -1,1 +1,3 @@
-## My New Years resolution is to stop leaving things so late.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
