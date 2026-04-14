@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
