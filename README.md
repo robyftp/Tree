@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why do fish live in salt water? Because pepper makes them sneeze!
