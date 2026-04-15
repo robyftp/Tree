@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
