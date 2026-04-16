@@ -1,1 +1,1 @@
-## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
