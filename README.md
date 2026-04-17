@@ -1,1 +1,1 @@
-## Pie is $2.50 in Jamaica and $3.00 in The Bahamas. These are the pie-rates of the Caribbean.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
