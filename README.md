@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## The shovel was a ground-breaking invention.
