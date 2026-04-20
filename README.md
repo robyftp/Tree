@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
