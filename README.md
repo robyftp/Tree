@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## My sea sickness comes in waves.
