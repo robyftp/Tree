@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## What did the left eye say to the right eye? Between us, something smells!
