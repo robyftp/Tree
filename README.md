@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What do you get when you cross a snowman with a vampire? Frostbite.
