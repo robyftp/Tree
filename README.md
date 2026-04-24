@@ -1,1 +1,1 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## New atoms frequently lose electrons when they fail to keep an ion them.
