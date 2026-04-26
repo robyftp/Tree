@@ -1,1 +1,3 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
