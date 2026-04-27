@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
