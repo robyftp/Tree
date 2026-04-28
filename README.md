@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
