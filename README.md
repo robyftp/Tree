@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I broke my finger at work today, on the other hand I'm completely fine.
