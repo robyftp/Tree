@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
