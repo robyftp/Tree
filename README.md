@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## When does a joke become a dad joke? When it becomes apparent.
