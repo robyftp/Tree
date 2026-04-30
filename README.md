@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## How do you make a hankie dance? Put a little boogie in it.
