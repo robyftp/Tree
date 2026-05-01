@@ -1,1 +1,3 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
