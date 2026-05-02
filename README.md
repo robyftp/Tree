@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
