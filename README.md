@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Where do young cows eat lunch? In the calf-ateria.
