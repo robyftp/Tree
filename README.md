@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## What did one plate say to the other plate? Dinner is on me!
