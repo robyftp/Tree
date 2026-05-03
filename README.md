@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What do you call a dad that has fallen through the ice? A Popsicle.
