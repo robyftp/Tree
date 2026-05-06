@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## How does a French skeleton say hello? Bone-jour.
