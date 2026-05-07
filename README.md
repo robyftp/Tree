@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
