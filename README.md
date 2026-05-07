@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
