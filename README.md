@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
