@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## If at first you don't succeed, sky diving is not for you!
