@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## What do you call a fish wearing a bowtie? Sofishticated.
