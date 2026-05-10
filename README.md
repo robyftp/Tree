@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## This morning I was wondering where the sun was, but then it dawned on me.
