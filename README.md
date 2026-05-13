@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
