@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
