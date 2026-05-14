@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## What do you call your friend who stands in a hole? Phil.
