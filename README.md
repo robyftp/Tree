@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why do fish live in salt water? Because pepper makes them sneeze!
