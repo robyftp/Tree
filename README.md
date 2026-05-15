@@ -1,1 +1,2 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
