@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Atheism is a non-prophet organisation.
