@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## I had a dream that I was a muffler last night. I woke up exhausted!
