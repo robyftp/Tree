@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
