@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
