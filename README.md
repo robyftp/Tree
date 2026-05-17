@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
