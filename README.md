@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
