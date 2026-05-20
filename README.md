@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Conjunctivitis.com – now that’s a site for sore eyes.
