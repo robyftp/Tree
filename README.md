@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
