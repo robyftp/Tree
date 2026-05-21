@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What's black and white and read all over? The newspaper.
