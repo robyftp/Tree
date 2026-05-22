@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
