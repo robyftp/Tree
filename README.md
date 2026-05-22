@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
