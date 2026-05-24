@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## How come the stadium got hot after the game? Because all of the fans left.
