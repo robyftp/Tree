@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## What’s E.T. short for? He’s only got little legs.
