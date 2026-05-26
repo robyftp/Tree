@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
