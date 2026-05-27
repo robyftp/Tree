@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## How many South Americans does it take to change a lightbulb? A Brazilian
