@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
