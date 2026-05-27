@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
