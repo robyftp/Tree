@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
