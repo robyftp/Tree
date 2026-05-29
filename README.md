@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## An apple a day keeps the bullies away. If you throw it hard enough.
