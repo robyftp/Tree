@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Where do rabbits go after they get married? On a bunny-moon.
