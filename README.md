@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Whoever invented the knock-knock joke should get a no bell prize.
