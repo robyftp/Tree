@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Geology rocks, but Geography is where it's at!
