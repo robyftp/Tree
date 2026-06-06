@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Do I enjoy making courthouse puns? Guilty
