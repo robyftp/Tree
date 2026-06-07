@@ -1,1 +1,2 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
