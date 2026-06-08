@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
