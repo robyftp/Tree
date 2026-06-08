@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
