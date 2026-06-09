@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## My wife said I was immature. So I told her to get out of my fort.
