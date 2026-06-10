@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
