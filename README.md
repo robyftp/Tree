@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
