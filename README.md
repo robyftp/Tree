@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
