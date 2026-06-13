@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
