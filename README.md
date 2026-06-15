@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
