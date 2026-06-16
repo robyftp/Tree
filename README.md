@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
