@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## When does a joke become a dad joke? When it becomes apparent.
