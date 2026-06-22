@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## How do robots eat guacamole? With computer chips.
