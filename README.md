@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
