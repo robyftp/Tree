@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Waking up this morning was an eye-opening experience.
