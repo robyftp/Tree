@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why didn’t the skeleton cross the road? Because he had no guts.
