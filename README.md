@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Have you ever seen fruit preserves being made? It's jarring.
