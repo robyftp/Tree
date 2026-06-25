@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
