@@ -1,1 +1,1 @@
-## What do you call a female snake. misssssssss 
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
