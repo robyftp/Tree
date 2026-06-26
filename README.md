@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
