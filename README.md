@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What's the best thing about elevator jokes? They work on so many levels.
