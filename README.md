@@ -1,1 +1,5 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## A panda walks into a bar and says to the bartender “I’ll have a Scotch and . . . . . . . . . . . . . . Coke thank you”. 
+## 
+## “Sure thing” the bartender replies and asks “but what’s with the big pause?” 
+## 
+## The panda holds up his hands and says “I was born with them”
