@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
