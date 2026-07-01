@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
