@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## I used to work in a shoe recycling shop. It was sole destroying.
