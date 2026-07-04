@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
