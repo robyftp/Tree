@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I just wrote a book on reverse psychology. Do not read it!
