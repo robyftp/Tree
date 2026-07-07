@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## What was a more important invention than the first telephone? The second one.
