@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
