@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## What did one nut say as he chased another nut?  I'm a cashew!
