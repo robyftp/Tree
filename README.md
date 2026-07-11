@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
