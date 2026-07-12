@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
