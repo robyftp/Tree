@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
