@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
