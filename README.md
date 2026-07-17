@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Never take advice from electrons. They are always negative.
