@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
