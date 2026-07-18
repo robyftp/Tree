@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## How does the moon cut his hair? Eclipse it.
