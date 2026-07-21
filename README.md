@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
