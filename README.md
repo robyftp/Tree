@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What did one plate say to the other plate? Dinner is on me!
