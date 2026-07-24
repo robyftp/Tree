@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## My boss told me to have a good day... so I went home.
