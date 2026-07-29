@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
