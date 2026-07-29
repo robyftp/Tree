@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Why did the scarecrow win an award? Because he was outstanding in his field.
