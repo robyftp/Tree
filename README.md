@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
