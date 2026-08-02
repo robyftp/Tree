@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Why did the house go to the doctor? It was having window panes.
