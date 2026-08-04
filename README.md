@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
