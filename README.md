@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
