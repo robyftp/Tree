@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
