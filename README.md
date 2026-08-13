@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
