@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## I'll tell you what often gets over looked... garden fences.
