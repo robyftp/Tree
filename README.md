@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Where do hamburgers go to dance? The meat-ball.
