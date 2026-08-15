@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
