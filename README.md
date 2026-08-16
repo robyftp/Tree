@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## How come a man driving a train got struck by lightning? He was a good conductor.
