@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
