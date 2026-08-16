@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
