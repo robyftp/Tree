@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
