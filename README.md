@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
