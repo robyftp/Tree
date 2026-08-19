@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
