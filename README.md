@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## The rotation of earth really makes my day.
