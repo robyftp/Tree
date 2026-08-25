@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
