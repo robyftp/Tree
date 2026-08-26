@@ -1,1 +1,2 @@
-## What do you call a beehive without the b's? An eehive.
+## What do you do when you see a space man?
+## Park your car, man.
