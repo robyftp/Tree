@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
