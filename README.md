@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
