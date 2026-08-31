@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
