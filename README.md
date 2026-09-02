@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
