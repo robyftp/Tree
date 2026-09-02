@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
