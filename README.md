@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
