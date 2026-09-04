@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why is no one friends with Dracula? Because he's a pain in the neck.
