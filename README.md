@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
