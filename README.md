@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
