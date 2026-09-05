@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
