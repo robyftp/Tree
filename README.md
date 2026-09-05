@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## How does the moon cut his hair? Eclipse it.
