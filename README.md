@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
