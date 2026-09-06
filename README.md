@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Never take advice from electrons. They are always negative.
