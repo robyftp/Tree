@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Me and my mates are in a band called Duvet. We're a cover band.
