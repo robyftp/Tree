@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## What did the digital clock say to the grandfather clock? Look, no hands!
