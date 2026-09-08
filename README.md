@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Dad, can you put my shoes on? I don't think they'll fit me.
