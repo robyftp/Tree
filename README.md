@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
