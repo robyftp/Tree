@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
