@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
