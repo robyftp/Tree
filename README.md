@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## New atoms frequently lose electrons when they fail to keep an ion them.
