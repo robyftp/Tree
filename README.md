@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
