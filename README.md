@@ -1,1 +1,3 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
