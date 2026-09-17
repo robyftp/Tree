@@ -1,1 +1,3 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
