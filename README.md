@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## I broke my finger at work today, on the other hand I'm completely fine.
