@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## I wouldn't buy anything with velcro. It's a total rip-off.
