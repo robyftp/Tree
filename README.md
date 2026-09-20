@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why do cows wear bells? Because their horns don't work.
