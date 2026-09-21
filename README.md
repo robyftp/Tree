@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
