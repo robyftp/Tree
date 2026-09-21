@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
