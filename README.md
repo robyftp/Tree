@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
