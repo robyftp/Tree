@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
