@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
