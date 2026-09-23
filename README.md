@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
