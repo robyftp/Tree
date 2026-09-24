@@ -1,1 +1,3 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
