@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
