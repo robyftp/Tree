@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Where does Napoleon keep his armies? In his sleevies.
