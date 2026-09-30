@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
