@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
