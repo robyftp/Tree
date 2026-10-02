@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
