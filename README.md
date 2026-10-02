@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Without geometry life is pointless.
