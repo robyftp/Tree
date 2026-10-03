@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why did the octopus beat the shark in a fight? Because it was well armed.
