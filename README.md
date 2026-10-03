@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Whiteboards ... are remarkable.
