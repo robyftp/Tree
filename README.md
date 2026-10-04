@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
