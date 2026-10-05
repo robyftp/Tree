@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
