@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
