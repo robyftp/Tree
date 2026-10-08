@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Why do ducks make great detectives? They always quack the case.
