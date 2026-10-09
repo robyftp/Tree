@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
