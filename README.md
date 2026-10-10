@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
