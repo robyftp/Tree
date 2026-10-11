@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
