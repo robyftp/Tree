@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Whoever invented the knock-knock joke should get a no bell prize.
