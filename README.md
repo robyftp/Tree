@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
