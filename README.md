@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
