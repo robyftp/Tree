@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
