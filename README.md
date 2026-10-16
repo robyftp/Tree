@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
