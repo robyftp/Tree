@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
