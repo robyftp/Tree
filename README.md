@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## An apple a day keeps the bullies away. If you throw it hard enough.
