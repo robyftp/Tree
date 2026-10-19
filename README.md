@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
