@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## I’ll tell you something about German sausages, they’re the wurst
