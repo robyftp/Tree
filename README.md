@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
