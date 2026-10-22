@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I’ll tell you something about German sausages, they’re the wurst
