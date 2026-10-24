@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
