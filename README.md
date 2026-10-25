@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Why was the picture sent to prison? It was framed.
