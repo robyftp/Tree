@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
