@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
