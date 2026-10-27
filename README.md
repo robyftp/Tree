@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
