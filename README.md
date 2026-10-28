@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
