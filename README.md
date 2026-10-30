@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
