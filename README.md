@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
