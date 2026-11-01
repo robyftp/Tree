@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## What do you call a boomerang that won't come back? A stick.
