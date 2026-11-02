@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
