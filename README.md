@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
