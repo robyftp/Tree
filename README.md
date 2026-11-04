@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Why do bears have hairy coats? Fur protection.
