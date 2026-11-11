@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Why do pirates not know the alphabet? They always get stuck at "C".
