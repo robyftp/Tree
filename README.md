@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
