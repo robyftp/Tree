@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
