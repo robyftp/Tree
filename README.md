@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## Is the pool safe for diving? It deep ends.
