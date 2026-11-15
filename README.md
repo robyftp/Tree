@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
