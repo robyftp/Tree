@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
