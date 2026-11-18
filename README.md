@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
