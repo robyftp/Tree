@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
