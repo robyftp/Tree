@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
