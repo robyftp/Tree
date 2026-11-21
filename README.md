@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
