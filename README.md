@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## What do you call a bear with no teeth? A gummy bear!
