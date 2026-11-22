@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
