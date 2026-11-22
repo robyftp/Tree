@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
