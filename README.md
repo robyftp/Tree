@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
