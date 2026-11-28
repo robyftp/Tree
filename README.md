@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
