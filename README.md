@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
